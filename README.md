@@ -1,3 +1,3 @@
 # QuizApp
-https://github.com/user-attachments/assets/c7a041cf-67e7-47c8-a050-245542cf1e91
+https://github.com/user-attachments/assets/baf81abe-6f48-419f-ae85-accb79e56265
 
